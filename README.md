@@ -1,1 +1,1 @@
-![](remilia1.gif)
+![](winxp.jpg)
